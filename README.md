@@ -12,3 +12,4 @@
 
 🔗 Check out my projects and feel free to connect!
 📧 Email: aaaarrvind@gmail.com
+- 💼 [LinkedIn](https://www.linkedin.com/in/aaarrvind/)
